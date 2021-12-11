@@ -1,3 +1,3 @@
-## Welcome to my personal website and a blog!
+## Welcome to my personal website and blog!
 
 Work in progress...
